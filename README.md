@@ -1,0 +1,2 @@
+# MOA-RangeR
+Privacy policy
